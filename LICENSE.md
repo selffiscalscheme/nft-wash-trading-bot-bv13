@@ -1,4 +1,4 @@
-# 
+# Get the ultimate nft wash trading bot with top NFT Scanner for nft wash trading bot | wash-trading-detection & flip-strategies. Featuring wash-trading-detection and
 
 
 
